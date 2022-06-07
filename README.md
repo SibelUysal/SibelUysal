@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-https://www.wallpaperbetter.com/en/hd-wallpaper-gbzfg
+<img src="https://www.wallpaperbetter.com/en/hd-wallpaper-gbzfg" width="128"/>
 
 
 
