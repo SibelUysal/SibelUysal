@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-[![alt text](https://www.wallpaperbetter.com/en/hd-wallpaper-gbzfg)]
+(https://www.wallpaperbetter.com/en/hd-wallpaper-gbzfg)
 
 
 
